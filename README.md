@@ -9,12 +9,12 @@
 
    👀 I’m interested in ... learning new things
  
-  📚 Education
+   📚 Education
     **Bachelor of Computer Applications(BCA 23-26)**
      Student at Insitute Of Engneering And Management kolkata
   
-  📫 Contact:
+   📫 Contact:
       **Email: raajtq9@gmail.com** 
-      **LinkedIn: https://www.linkedin.com/in/yubaraj saha/**
+      **LinkedIn: https://www.linkedin.com/in/yubarajsaha/**
   
   **Let's connect and collaborate on exciting projects! 🚀**
