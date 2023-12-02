@@ -9,7 +9,7 @@
 
    👀 I’m interested in ... learning new things
  
-   📚 Education
+   📚 Education :
     **Bachelor of Computer Applications(BCA 23-26)**
      Student at Insitute Of Engneering And Management kolkata
   
