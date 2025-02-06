@@ -14,7 +14,7 @@
      Student at Insitute Of Engneering And Management kolkata
   
    📫 Contact:
-      **Email: raajtq9@gmail.com** 
+      **Email: yubaraj459@gmail.com** 
       **LinkedIn: https://www.linkedin.com/in/yubarajsaha/**
   
   **Let's connect and collaborate on exciting projects! 🚀**
